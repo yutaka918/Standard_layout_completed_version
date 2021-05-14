@@ -1,1 +1,0 @@
-# Standard_layout_completed_version
